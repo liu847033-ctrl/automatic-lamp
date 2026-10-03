@@ -1,1 +1,1 @@
-恋爱人格测试
+love-personality-test
